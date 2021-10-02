@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @djhsngwaetlicvmkyhlb5wmnivjhdsklv
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning fkhughgf
+- 🌱 I’m currentlysdthbraneilearning fkhughgf
 - 💞️ I’m looking to collaborate on i[osdf0- 📫 How to reach me ...
 
 <!---
